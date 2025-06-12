@@ -1,5 +1,5 @@
--Olá, seja bem-vindo ao meu perfil🫀
+-Olá, seja bem-vindo ao meu perfil🌃
 -
 -Estou no Ensino médio📚
 -Tenho 15 anos
--Utilizo esse espaço para compartilhar meu projeto:
+-Utilizo esse espaço para compartilhar meu projeto⭐
